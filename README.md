@@ -1,2 +1,2 @@
-# sedffbdfgthrytee
-bot 24/7
+# J-zef-Stalin
+Paczy 24/7
